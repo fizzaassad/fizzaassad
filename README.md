@@ -11,9 +11,9 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **fizzaassad8@gmail.com**
+- 📫 How to reach me **fizzabbasii86@gmail.com**
 
-- ⚡ Fun fact **I think I am funny (I am not)**
+- ⚡ Fun fact **I think I am funny (I am )**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
